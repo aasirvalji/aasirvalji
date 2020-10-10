@@ -1,2 +1,2 @@
-🔱 Hey, welcome to my Github profile! 🎩
+🔱 Hey, welcome to my Github profile! 🔱
 
