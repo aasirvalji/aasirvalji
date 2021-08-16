@@ -1,3 +1,3 @@
 ```js
-Welcome to my minecraft server
+Welcome to my home on the net :)
 ```
